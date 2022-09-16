@@ -1,7 +1,6 @@
 # 상상이력서👍
 ### <right> 2018732038 최호민
-![image](https://user-images.githubusercontent.com/101074052/190560347-9be13106-1d94-4b8b-ae14-d638809b6612.png)
-
+![image](https://user-images.githubusercontent.com/101074052/190560799-591fe932-6edd-41eb-a8a3-80b172ca93d4.png)
 
 ---
 
