@@ -1,6 +1,6 @@
 # 상상이력서👍
-### <right> 2018732038 최호민
-![image](https://user-images.githubusercontent.com/101074052/190560799-591fe932-6edd-41eb-a8a3-80b172ca93d4.png)
+### 2018732038 최호민
+ <img src="KakaoTalk_20220916_135642703](https://user-images.githubusercontent.com/101074052/190561137-e7af4097-d67b-49e5-80a8-ebb33325a63e.jpg" width="600" height="300"/>  
 
 ---
 
